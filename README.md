@@ -10,3 +10,6 @@ Sejauh ini, saya merasa senang dalam rangkaian INTRIVIA, karena saya mempelajari
 
 ## Kesan Pesan Cluster 19 Sejauh Ini 
 Saya merasa senang dengan cluster saya yaitu cluster 19, kakak fasilitator baik dan mau membantu, dan teman-teman saya 1 cluster juga baik.
+
+## Harapan Kuliah 
+Saya berharap dapat lulus sebagai mahasiswa yang berprestasi dan siap bekerja, serta memiliki banyak relasi dan teman yang akan membantu karir saya.
